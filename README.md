@@ -15,8 +15,4 @@ Uhhhhhh idk random other things to know:
 ~Neurodivergent
 ~Can't frickin spell
 ~Total weirdo 😎 
-~I'm very picky about my ships for religious reasons, particularly VxUzi, VxNxUzi, and Cynx*Anyone*. It's fine if you ship these, just pleeeeaasseeee don't try RPing them with me, it'll ruin my day & I'll prob just leave the game on the spot
-
-
-
-IF we are good friends, I have a discord server you can ask to join :3 I will decline if I feel I don't know you well enough though
+~I'm very picky about my ships for religious reasons, I normally tend to just do whatevers canon in MD. I'm fine with people shipping whatever they want as long as its not a proship and not roleplayed with me
