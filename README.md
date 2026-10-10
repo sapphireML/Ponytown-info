@@ -1,12 +1,14 @@
 # Ponytown Info!
 Haihai I'm some random Murder Drone addict >:333
 
-I'm absolutely horrendous at starting conversations, it's kinda a problem, but I LOVEEEEEE interacting with fellow MD fans ^^ plsPLSSS feel free to come start conversation or roleplay or whatever, if I'm using an offtab skin it doesn't always mean I'm busy but it does mean PLEASE WHISPER or else I won't see you
+I'm absolutely horrendous at starting conversations, it's kinda a problem, but I LOVEEEEEE interacting with fellow MD fans ^^ plsPLSSS feel free to come start conversation or roleplay or whatever, if I'm using an offtab skin it doesn't always mean I'm busy but it does mean PLEASE WHISPER or else I won't see you.
 
 I'm totally good with C+H and especially if your my friend you're ALWAYSSS welcome to come sit with me (But if I'm in the middle of a role play, I might ignore you, sorry...)
+I DO use offline mode sometimes. If you recognize me then yes please sit with me. If I'm in offline mode because I don't wanna be found I won't be found
 Usually I hangout in the MD area and I'm on pretty consistently. I've taken a particular liking to Nuzi >:333 I won't ship unless you do though, and I never kiss first. I also like Manor Envy and Khori!
 Yeah sorry I turned off public friend requests- if we've hung out a bit or are doing RP you can ask to friend req or I might do it myself!
 I WILL stick with personalities in RP, so some characters miiight be a little mean, IT'S JUST ME TRYING TO STAY IN PERSONALITY-
+
 
 Uhhhhhh idk random other things to know:
 ~Religious (Christian)
