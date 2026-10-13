@@ -18,5 +18,5 @@ Uhhhhhh idk random other things to know:
 ~Neurodivergent
 ~Can't frickin spell please don't bother me about that. I know and I don't care.
 ~Total weirdo 😎 
-~I'm very picky about my ships for religious reasons, I normally tend to just do whatevers canon in MD. I'm fine with people shipping whatever they want as long as its not a proship and not roleplayed with me
+~I'm very picky about my ships for religious reasons, I normally tend to just do whatevers canon in MD. I'm fine with people shipping whatever they want as long as its not a proship and not roleplayed with me. I particularly get VERY uncomfortable with VxUzi, VxNxUzi, and ANY Cyn ship.
 ~I adore talking about lore and doing character studies :D
