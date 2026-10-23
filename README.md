@@ -3,7 +3,7 @@ Haihai I'm some random Murder Drone addict >:333
 
 I'm absolutely horrendous at starting conversations, it's kinda a problem, but I LOVEEEEEE interacting with fellow MD fans ^^ plsPLSSS feel free to come start conversation or roleplay or whatever, if I'm using an offtab skin it doesn't always mean I'm busy but it does mean PLEASE WHISPER or else I won't see you.
 
-I'm totally good with C+H and especially if your my friend you're ALWAYSSS welcome to come sit with me (But if I'm in the middle of a role play, I might ignore you, sorry...) If we're friended but NEVER NEVER interact I might take you off sry-
+I'm totally good with C+H and especially if your my friend you're ALWAYSSS welcome to come sit with me (But if I'm in the middle of a roleplay, I might ignore you, sorry...) If we're friended but NEVER NEVER interact I might take you off sry-
 I DO use offline mode sometimes. If you recognize me then yes please sit with me, it's totally cool!
 Usually I hangout in the MD area and I'm on pretty consistently. I've taken a particular liking to Nuzi >:333 I won't ship unless you do though, and I never kiss first.
 Yeah sorry I turned off public friend requests- if we've hung out a bit or are doing RP you can ask to friend req or I might do it myself!
@@ -13,11 +13,12 @@ I WILL stick with personalities in RP, so some characters miiight be a little me
 
 Uhhhhhh idk random other things to know:
 ~Religious (Christian)
-~Cat lady
+~I loveeee animals :3
 ~N selfshipper!
 ~Call me Sapphire (Saph for short)
 ~Neurodivergent
 ~Can't frickin spell please don't bother me about that. I know and I don't care.
 ~I'm very picky about my ships for religious reasons, I normally tend to just do whatevers canon in MD. I'm fine with people shipping whatever they want as long as its not a proship and not roleplayed with me. I particularly get VERY uncomfortable with VxUzi, VxNxUzi, and ANY Cyn ship.
-~I adore talking about lore and doing character studies :D
+~I adore talking about lore and doing character studies :D Like. A lot.
+~I don't do any OC ship rps involving N and Uzi (Like Uzi x Oc or N x Oc) sorry I'm too much of a Nuzi shipper for that... 
 
