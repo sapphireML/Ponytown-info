@@ -20,5 +20,6 @@ Uhhhhhh idk random other things to know:
 ~Can't frickin spell please don't bother me about that. I know and I don't care.
 ~I'm very picky about my ships for religious reasons, I normally tend to just do whatevers canon in MD. I'm fine with people shipping whatever they want as long as its not a proship and not roleplayed with me. I particularly get VERY uncomfortable with VxUzi, VxNxUzi, and ANY Cyn ship.
 ~I adore talking about lore and doing character studies :D Like. A lot.
-~I don't do any OC ship rps involving N and Uzi (Like Uzi x Oc or N x Oc) sorry I'm too much of a Nuzi shipper for that... 
+~I don't do any OC ship rps involving N and Uzi (Like Uzi x Oc or N x Oc) sorry I'm too much of a Nuzi shipper for that...
+~No Politics. I'm playing this game to meet fellow weirdoes who like the same stuff I do. I'm not here to argue about the US government or whatever.
 
