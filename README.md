@@ -43,7 +43,7 @@ Uhhhhhh idk random other things to know:
 
 ~Prefered age of interaction is 15-21. I'm fine with talking to people younger or older interacting but it tends to drain me faster 
 
-~My secondary interest is Poppy Playtime. I'm not really in the fandom so keep that in mind. I only got into it very recently so I just have one or two skins. I'm not much into the shipping of PPT either, I jst stick with HuggyxKissy but not in a discusting sexual way
+~Patreon is where I have my PPT interaction bio: https://www.patreon.com/cw/Sapphiremillieluna
 
 ~I don't do any OC ship roleplays involving N and Uzi (Like Uzi x Oc or N x Oc) sorry I'm too much of a Nuzi shipper for that...
 
