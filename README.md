@@ -17,7 +17,7 @@ If you could not already tell from my tone of writing this I am a veery energeti
 
 GENERALLY 🌙 status means "i'm offtab but open to interaction!" and ⛔ status means "busy, slow responces" but sometimes I forget to clear my status HAHA so it's not always reliable.
 
-If we share no fandoms IWC. I have limited mental energy.
+IWC if: We're not in any of the same fandoms, your big into countryhuman fandom, big into political discussions, LSP fandom, ppl who use tut. skins
 
 I'm totally fine with just cuddling and not talking I get stressed and overstimulated often from school so sometimes thats all I feel like doing. It's not awkward to me to jst sit side by side not talking
 
